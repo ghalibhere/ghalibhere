@@ -21,5 +21,5 @@ With over 9 years of experience in diverse sectors, I transform complex ideas in
 - Modernized company brief/information through visual digital identity implementation.
 
 ---
-📫 **Let's Connect:** [mghalib.gds@gmail.com](mailto:mghalib.gds@gmail.com) | [LinkedIn](https://www.linkedin.com/in/mghalib30)
+📫 **Let's Connect:** [mghalib.gds@gmail.com](mailto:mghalib.gds@gmail.com) | [LinkedIn](https://www.linkedin.com/in/mghalib30) | 
 [Behance](https://www.behance.net/muhammadghalib3)
